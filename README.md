@@ -9,6 +9,8 @@ Organizations who are unable to support solid state nuclear fuel energy producti
 
 Pycnogonida will never give up. 
 
+Monsanto uses tritium
+
 
 
 
